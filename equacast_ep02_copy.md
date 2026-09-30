@@ -1,16 +1,16 @@
-# Equacast EP. 02 — YouTube + Instagram copy
+# Equacast EP. 02 — final YouTube + Instagram copy
 
-## YouTube title (pick one)
-1. Drake's FOMO, Is He Having the Best 2026? | Equacast EP. 02   <- recommended
-2. Is Drake Having the Best 2026? | Equacast EP. 02
-3. Live Performance > Album Sales? Hip-Hop Debate | Equacast EP. 02
+## YouTube title
+Drake's FOMO, Is He Having the Best 2026? | Equacast EP. 02
 
 ## YouTube description
-Is Drake actually having the best 2026 among all rappers? We break down his FOMO era, argue over who the best live performer in hip-hop is, and ask whether live performance beats album sales.
+Is Drake actually having the best 2026 among all rappers? On Equacast EP. 02 we break down his FOMO era, argue over who the best live performer in hip-hop is, and debate whether live performance beats album sales.
 
-Plus: Rock Band is back, is the Wolverine game actually good, are we buying MW4 this year, where Bleach ranks in 2026, and whether this was the best summer ever.
+Also in this episode: Rock Band is back, is the Wolverine game actually good, are we buying MW4 this year, where Bleach ranks in 2026, and whether this was the best summer ever.
 
-Subscribe for a new Equacast every week.
+Where do you stand on Drake's 2026? Tell us in the comments.
+
+New Equacast every week. Subscribe so you don't miss it.
 
 CHAPTERS
 0:00 6yron doesn't like chocolate
@@ -38,13 +38,19 @@ TikTok: [add link]
 
 #Drake #FOMO #Equacast
 
-## Instagram caption
+## Pinned comment (post right after publishing)
+Is Drake having the best 2026, yes or no? Tell us why 👇
+
+## Instagram reel caption
 Is Drake having the best 2026?? 👀🔥
 
-We got into the FOMO era, who's the best live performer in hip-hop, and whether live performance beats album sales.
+New Equacast is LIVE. We get into his FOMO era, who the best live performer in hip-hop really is, and whether live performance beats album sales.
 
-🎙️ Full episode is live on YouTube. Link in bio.
+🎙️ Full episode on YouTube, link in bio.
 
-Who's your pick for best live performer right now? Drop it below 👇
+Yes or no on Drake's 2026? Comment below 👇 and send this to the friend who'll argue with you.
 
 #Equacast #Drake #FOMO #HipHop #HipHopPodcast #Podcast #Drizzy #LivePerformance
+
+## Instagram on-screen text / cover text (first 2 seconds of the reel)
+DRAKE'S 2026: YES OR NO?
